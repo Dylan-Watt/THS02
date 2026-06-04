@@ -16,10 +16,14 @@ I really enjoyed this as I was able to look at the work everyone had done and se
 
 I learned how important it is to have someone that sits at the center of the all the branches and information from the team i felt this was a very crucial role and important to a project and that if this role was not a thing people would be pushing work and it might override other peoples work and creating more issues for the project and the team working together. 
 
-Owner – 
+Owner – Final Project 
 
-While I was the Owner, I found this to be a experience because I had not really lead a team before. my team was very active and engaged throughout the project which made it easy to be aable to support them and help them if there was any issues that happened. I was responsible for prioritising tasks, clarifying requirements, and making sure the team stayed focused and delivered the jobs they were assigned to ensure we were progressing with the project at hand . Working with such a motivated group made it easier to coordinate progress and ensure that we met all of the project goals on time as everyone was very clear about when and where they would be available. 
+So my project was chosen for the final project i was a bit nervous going into the project becasue i havent been confident leading a project before. i was responsible for managed tasks and the overall project idea. i was leading the team and setting meetings and working with the team to push the project in a way that would work for everyone.  
 
-Over all i did struggle slightly as i felt out of place and that i was doing something wrong. but looking back on it i am happy that i was able to step out of the comfort zone and learn something new
+I found that as i started i was very nervous and not sure how this idea i had was going to come and happen i was lucky to have some motivated people who really liked the idea and wanted to progress the idea too so it gave me some confidence to put all my ideas out on the table and show what i had planned. i think if i was to do another project like the one we have been working on i would change a few ways i did things and how i managed the team and started the project. 
 
-I learned being the team leader can sometime be easy and sometimes not while i was doing this i Struggled to ensure the i got all the roles and how to manage people in a effective way i was very lucky that i had a super productive team that understood that leading wasnt a strong point of mine. if i looked back and was to do this role again i would change many things of how i worked and how i managed the team to be a better leader for them
+I learned how important it is for the team to communicate and work together i would also check with every member of the team if they were happy with the changes we would make and ensure everyone was heard and had to take into consideration everyone in the group. 
+
+
+
+
